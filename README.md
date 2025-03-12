@@ -5,3 +5,4 @@
 im dutch 
 15 years old and uhm i like fnaf, crk, pjsk, steven universe and some more but i forgot 💔💔💔
 i heart my friends (the ones i follow yay! theres more idk if they hve gh)
+if i unfollow you i dislike you no hate 😁
